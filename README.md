@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Vhargav Ram
+# 👋 Hi, I'm Bhargav Ram
 
 🎓 **Computer Science Student | Aspiring Developer | Tech Explorer**  
 
